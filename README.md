@@ -18,5 +18,5 @@ Here's a list of the certificates I have in reverse-chronological order, with th
 •	Microsoft Excel - Excel from Beginner to Advanced Level. (October, 2023) (Udemy)
 
 **CONTACTS**
-•	LinkedIn: linkedin.com/in/deborah-oshamehin-0b4a4b293
+•	LinkedIn: https://www.linkedin.com/in/deborah-oshamehin-0b4a4b293
 •	Email: oshamehindeborah@gmail.com
